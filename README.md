@@ -19,8 +19,7 @@
 
 - 📫 How to reach me **solianadaniel22@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1GCS7MxiQmLQlBBIC-ifM01zJuIi_BAwz/view?usp=sharing](https://drive.google.com/file/d/1GCS7MxiQmLQlBBIC-ifM01zJuIi_BAwz/view?usp=sharing)
-
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1GCS7MxiQmLQlBBIC-ifM01zJuIi_BAwz/view?usp=sharing](https://docs.google.com/document/d/1x3kBQH8ZJbUmIM3WrO8GBet3bNelucLzK18cONoj2XM/edit?usp=sharing)]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
